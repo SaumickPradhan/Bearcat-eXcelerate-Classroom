@@ -1,1 +1,1 @@
-# Bearcat-eXcelerate-Classroom
+# Apple-i-eXcelerate-Classroom
